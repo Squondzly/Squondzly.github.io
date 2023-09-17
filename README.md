@@ -1,1 +1,1 @@
-# squondzly.github.io
+# Squondzly.github.io
